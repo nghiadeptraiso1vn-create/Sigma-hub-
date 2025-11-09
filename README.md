@@ -1,0 +1,2 @@
+# Sigma-hub-
+Script xịn☠️
